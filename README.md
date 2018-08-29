@@ -1,2 +1,5 @@
 # First-pr02-su17a
-Första projekt skola
+
+**I wanna be gay**
+
+***LOL LMAO XDDDDDDD***
